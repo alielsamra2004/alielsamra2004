@@ -15,18 +15,16 @@
 - Blockchain technologies and their applications  
 - Academic research on Spain's economic reforms and labor markets  
 
-💞️ **I’m looking to collaborate on:**
+🤟 **I’m looking to collaborate on:**
 - Data-driven sustainability projects  
 - Sports analytics initiatives  
 - FinTech startups exploring personalized financial solutions (e.g., WakilPay)  
 - AI and machine learning applications in media and content analysis  
 
 📫 **How to reach me:**
-- Email: [aelsamra.ieu2022@student.ie.edu](mailto:aelsamra.ieu2022@student.ie.edu)  
+- Email: [aelsamra.ieu2022@student.ie.edu](mailto:aelsamra.ieu2022@student.ie.edu)  /  [alyelsamra2004@outlook.com](mailto:alyelsamra2004@outlook.com)
 - Phone: (+34) 645 272 603  
 - LinkedIn: [Ali El Samra](https://linkedin.com/in/ali-el-samra)  
-
-😄 **Pronouns:** He/Him  
 
 ⚡ **Fun fact:**  
 I’m passionate about telling stories through creative mediums like podcasting and furniture design. My podcast, *Unveiling the Game*, dives into the fascinating world of sports analytics. I’m also exploring a concept to design furniture inspired by themes like music and animals.
