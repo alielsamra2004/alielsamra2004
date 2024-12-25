@@ -47,8 +47,6 @@ I’m an officer of the IE Sports Analytics Club, organizing events like *Tennis
 ### 🇪🇬 **A Proud Connection to Egypt**  
 As someone with roots in Egypt, I’m inspired by the country’s rich history, vibrant culture, and forward-thinking potential. From the ingenuity that built the Great Pyramids to the modern innovation in fields like renewable energy and technology, Egypt is a land of endless inspiration.  
 
-Whether it’s the enduring wisdom of ancient civilizations, the bustling creativity of Cairo’s streets, or the serene beauty of the Nile, Egypt represents resilience and a deep connection to community and progress.  
-
 I carry this spirit in my projects, blending tradition with innovation, much like Egypt itself—a bridge between the past and the future. 🌍✨  
 
 ---
