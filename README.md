@@ -27,7 +27,7 @@
 - LinkedIn: [Ali El Samra](https://linkedin.com/in/ali-el-samra)  
 
 ⚡ **Fun fact:**  
-I’m passionate about telling stories through creative mediums like podcasting. My podcast, *Unveiling the Game*, dives into the fascinating world of sports analytics. I’m also exploring a concept to design furniture inspired by themes like music and animals.
+I’m passionate about telling stories through creative mediums like podcasting. My podcast, *Unveiling the Game*, dives into the fascinating world of sports analytics.
 
 ---
 
