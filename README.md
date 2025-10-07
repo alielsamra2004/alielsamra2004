@@ -1,4 +1,4 @@
-# Hi, I’m Ali El Samra 👋
+# Hi, I’m Ali 👋
 
 👀 **I’m interested in:**
 - Data and Business Analytics  
